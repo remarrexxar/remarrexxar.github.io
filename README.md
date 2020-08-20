@@ -102,9 +102,19 @@ The Thunder may not possess talents like Kevin Durant and Steph Curry, but they 
 
 At times, Houston’s defense looked like a zone, with each man almost accounting for a man and a half. But that’s only a mirage. It was particularly effective when the Rockets employed scram switching, a tactic used by switching defenses to negate would-be post mismatches.
 
+世上最好的防守是像一台润滑良好的机器一样敏捷而智能的运转。团队防守的存在会产生很多结果，但是最重要的是让对手打得不像自己。火箭作为一支矮个球队换防一些在球场上表现出了一些他们所不匹配的东西，至少是你们认为不会存在的东西。
+
+2018年的西决如此吸引人的原因之一是火箭迫使勇士打出不像他们的篮球的能力。主打的传切被限制，被迫通过更多的单打来寻求优势。
+
+雷霆可能没有像杜兰特和库里这样的天赋，但是他们基本还是有希望拿走胜利的。火箭持续的换防造成了雷霆13次失误，因此拿到了19分。这表明球的运动和人的运动都被延阻下来了。雷霆这赛季最显著的能力之一是他们后卫的持球能力，但是火箭能组织他们。常规赛雷霆几百火箭发挥重要作用的施罗德和亚历山大都变的无用了。
+
+有时候火箭的防守看起来像是区域防守，每个人像是盯人又像是联防。但这只是一种幻象。火箭采用连续换防的时候特别有效，这是一种减少错位防守的换防策略。
+
 I'm not sure if you can hear it, but it was pretty loud when I saw this clip. You can hear the Rockets talking on defense in particular Covington yelling for Rivers to get out and he sprints to the corner. pic.twitter.com/LFj994TSQ8
 
 — Mo Dakhil (@MoDakhil_NBA) August 18, 2020
+
+Mo Dakhil（前快船、马刺和梦之队的录像分析师）在18号的推特：我不确定你是否能听得到，但是我看这段录像的时候听到了很大的声音。你可以顶到火箭防守时的交谈，尤其是考文顿大喊让小李放弃当前防守人快去底角的时候
 
 “Well actually, it looks like a zone,” D’Antoni said. “That’s one of our mottos: make it look like a zone because it isn’t. Switching man to man, but it should look like a zone. They did a good job with that and we just gotta continue to see where the weak spots, get them better. And they’re really good—one of the things about being like that, they’re smart. We try to take away any pick and roll plays or anything that may cause a problem. It’s all one-on-one problems. We did a pretty good job of guarding one-on-one tonight.”
 
@@ -112,9 +122,19 @@ An aggressive defense usually accounts for opposing teams that move constantly. 
 
 Now, this isn’t to say the Rockets played an unbelievable defensive game from start to finish. The Thunder are a competent team and were able to get going in some areas, particularly from the outside. Danillo Gallinari accounts for the majority of that damage, scoring 29 points in a number of ways from all three levels on the floor, but overall the Thunder made 13 triples. At times, Steven Adams was able to effectively seal whichever Rocket was buried below and get easy putbacks. But this was a game Houston needed to win for various reasons and they were able to get it done.
 
+“是的，实际上这看起来就是区域联防”德安东尼说：“我们的座右铭是：让他看起来像是区域因为实际并不是。无限换防，但是看起来像是一种区域联防。他们做得很好，我们会继续看看薄弱的地方在哪然后变得更好。他们能做的很好很重要的一个原因是他们很聪明。我们试图拆解一切挡拆或者起来会惹麻烦的东西。然后全部变成一对一。我们今晚防一对一做的很好。”
+
+攻击性的防守通常通过打断对手延续性来做到。当他们没有延续性的回收防守就变得简单了。火箭有能力阻止雷霆进入通常的进攻节奏因为雷霆一定程度上停滞了。
+
+现在，并不是说火箭从头到尾都打出了一场不可思议的放手比赛。雷霆是有竞争力的球队，他们有能力在某些领域获得进展，尤其是外线。加里纳利打出了主要输出，拿到了15分在球场的三个层面都拿分了，但是总的来说雷霆只投进了13个三分。有时，亚当斯能在火箭球员都上抓板然后轻松补篮。但是这是一场休斯顿为了各种原因都要硬的比赛，他们有能力搞定。
+
 “Just off the top of my head we gave Chris two open looks just dribble shots that he hit in front of our bench,” Harden said. “We can be better with our boxing out. Obviously Steven Adams is a big guy. He’s really good offensively, as far as rebounding. So we got to help with that. Dribble penetration. Knowing who’s on the floor when they have five guys on the floor. Like you said we’ll watch film and we’ll get better at it and Game 2 we have to be even better at it than we were in Game 1.”
 
 “There are some areas we can get better at,” D’Antoni added. “Our defense was very good. We could have done a little bit better job on the threes they just took right in our faces, make them drivers. Overall, it was great. I’m nitpicking right now but I think for a long period—I think 20, 22 minutes—it was super. They’re a good team so they’ll be periods where you just can’t stop them but overall was great, we just need to get better.”
+
+“刚在我头顶上，我们给了保罗两个空位机会，只是简单地在替补球员面前持球投”哈登说：“我们可以在卡位上做的更好。显然亚当斯是个大个子，篮板方面说他进攻很好。我们需要处理他，双倍的准备。需要知道他们场上是哪五个人。就像你说的一样，我们会看录像，我们会变得更好，第二场比塞要比第一场打得更好。”
+
+“有一些地方我们可以做得更好”德安东尼补充道：“我们防守很好。我们可以在防三分上做的更好，防上去比他们突破。总的来说做的不错。我现在这是在挑剔，但是我认为我们在很长一段时间，大概是20或者22分钟内做的非常棒。他们是一直很好的队伍所以在一些时候你没法阻止他们但是总的来说做的不错，我们需要做得更好。”
 
 When news broke of Westbrook’s quad injury that would keep him sidelined from the Rockets’ playoff opener, the question of help once again resurfaced.
 
