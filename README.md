@@ -144,11 +144,25 @@ In Game 1, Gordon answered all of those questions and then some. Normally, with 
 
 But Gordon was able to respond positively with the ball in his hands more often. Westbrook’s presence was obviously felt in the speed and athleticism department, but Gordon was able to recoup some of that value. At times, he looked like a running back going downhill, displaying his shiftiness and agility. He beat a Thunder defender to the rim more than once with his quirky crossover, finished nicely around the rim, and even was able to create shots for others with his gravity. Gordon finished with 21 points, 4 assists, and 3 rebounds.
 
+当威少受伤缺席季后赛开幕的消息传来，帮手的问题再次浮出了水面。
+
+令人担心的是雷霆会否因此获得优势（现在认识这样，火箭还没走出阴影），雷霆乐观的主要原因是威少不在场时火箭没有足够的帮手。戈登的情况不确定，复赛后他只打过两场比赛。虽然替补阵容看起来不错，但是很有可能回归之前常规赛的情况。
+
+在第一场比赛里，戈登回答了这个问题，然后其他人也是。通常来说更多的机会带来更高的产出但是会降低球员的效率。戈登31的使用率告诉你他扮演了比平时大得多的角色，几乎是和联盟里超级球星的量相当，17次投篮也是自从2月4号打黄蜂和出名的1月盐湖城50分之夜后的最高值。
+
+戈登更多持球在手后表现的更好了。威少的缺席带来了速度和运动能力的缺口，戈登有能力补充了一部分。又是他看起来跑得像猛虎下山，展现了他的敏捷性。他通过一次次的快速变向过掉了雷霆的防守人攻击篮筐完成终结，也有能力通过他的吸引力给其他人创造机会。最后戈登得到了21分4助攻3篮板。
+
 “It’s fundamental,” D’Antoni said. “We have to have it. Eric played well but I think he’ll even play better. It goes without saying, with or without Russell, he’s an important piece that we have.”
 
 “It’s all about playmaking,” Gordon added. “I’m going to continue to attack the rim, or even knock down a shot. That’s the great thing about my game, I can always attack the rim, and I can always penetrate and kick to someone else. I’m not really worried about what I need to do. I just have to continue to [make plays] and make the right decisions.”
 
+“这是基础”德安东尼说：“我们有能力做到他。戈登打得不错，我认为他可以打得更好。不管有没有威少，他都是我们的重要组成部分。”
+
+“这和创造机会有关”戈登补充：“我会持续冲击篮筐，或者投进投篮。这是我的比赛中的重要部分，我可以攻击篮筐，也可以贯穿防守分球给其他球员，我不担心我要做的事，我会持续创造机会，做正确的决定”
+
 Emptying the notebook
+
+下面是记笔记时间
 
 1. I thought the ball movement tonight was excellent. Houston didn’t look to force the issue offensively, swinging the ball around until the right shot was found. Of the 16 teams that have played a playoff game so far, the Rockets ranked fifth in assists (25). Harden only finished with three assists. The effort was shared between guys like House (5 assists), Tucker (4 assists), Covington (3 assists), Gordon (4 assists), and Green (4 assists). Certainly an aspect of their game to watch moving forward, this was a job-by-committee to replicate Westbrook’s playmaking and the team passed with flying colors.
 
@@ -156,11 +170,21 @@ Six passes before the Rockets find a wide-open Ben McLemore. Beautiful ball move
 
 — Salman Ali (@SalmanAliNBA) August 19, 2020
 
+1.我认为今天球的运转很棒。火箭没有在进攻端太用力，就是运转球直到创造出好的机会。在所有16支球队第一场比赛里，火箭的助攻排第5（25次）。哈登只有3次助攻。这个其他人一起完成像豪斯（5次）、塔克（4次）、考文顿（3次）、戈登（4次）和格林（4次）。当然这是比赛中值得关注的一个部分。这是球队通过集体努力来替代威少创造机会的缺口。
+
+Salman Ali的推特贴出了一个回合：六次传球直到找到了大空位的麦克勒莫，精彩的转移球。
+
 2. “Our ball movement tonight was excellent,” Harden said. “I think we were just playing off the catch. Guys were just very confident in their shot when open and when not open, getting off the ball and making the quick decision. I think we had a lot of shot opportunities that we missed that were really good shots. We did a really good job of not turning the basketball over which would’ve given them opportunities to get out in transition.”
+
+2.“我们今晚的转移球太棒了”哈登说：“我认为我们就是努力打球。大家无论空不空位都非常自信，控球并快速做出决定。我认为我们有不少好的投篮机会但是我们投丢了，这仍然是好的出手。我们做得很好没有失误让对手得到很多转换机会。”
 
 3. Didn’t touch much on Harden’s game earlier, but he was at his best in Game 1. 37 points, 11 rebounds, six triples, and played 34 minutes. There was cause for concern when he stayed in the first quarter for all but the final two minutes, but D’Antoni was able to manage his load. With games coming every other day, that’s crucial. The Thunder used single coverage on him for the majority of the game (bad idea), which I’d expect to be tweaked going forward.
 
 Houston’s defense gave fire to Harden’s offense, which was scintillating for the most part. I consider myself to be a pretty observatory person and I’d never seen him jumping rope before a game, but you could tell there was a pep in his step. He looked engaged on both ends of the floor. Every stepback 3 is more demoralizing than the last and the Thunder received steady doses of that.
+
+3.哈登早比赛早期触球不多，但是他第一场很棒，37分11板6个三分打了34分钟。值得担忧的是直道第一节的最后两分钟他才得到休息但是德安东尼能管理好他的负荷。对于每两天一场比赛来说这很重要。雷霆主要使用了单防的策略（烂策略），我认为他们会尝试改变。
+
+哈登的进攻打出火花，火箭的防守更是给他燃起了火焰。我认为我是一个观察细致的人但是我过去从来没见过哈登在一场比赛前跳绳的，但是你看得出他的脚本令人振奋。他攻防两端看起来都进化了。没一个后撤步三分都比过去更残暴给雷霆造成了稳定的输出。
 
 4. Houston’s 2nd unit came to play, with McLemore and Green combining for 36 points.
 
@@ -170,10 +194,26 @@ McLemore looked sharp in his first-ever playoff action, hitting 4 triples, and G
 
 “We’re just trying to put the defense on their heels, giving them a different look,” Green said. “We know that all the focus is going to be on James, so it’s just another opportunity for us to take the pressure off him with Russell out… for everybody to get involved.”
 
+4.火箭的二阵容上场比赛，麦克勒莫和格林合砍36分。
+
+“这很棒，当威少回归，我们会有一个更有深度的板凳”德安东尼说：“麦克勒莫从今年开始就一直打得很好。你还有杰夫和奥斯丁，我们的替补很好。只是想让所有人都保持健康且都能上场。”
+
+麦克勒莫在生涯季后赛首战打得不错，投进四个三分。格林延续了复赛以来的强势表现。在没有传统大个子的情况下，他给火箭的进攻端带来了不同的东西，能持球做很多事情。格林能自己持球发起进攻，这对哈登是个巨大加成，他能时不时喘口气，打无球，当掩护墙等。
+
+“我们只是试图攻击他们不注意的地方，带来一些不同的东西”格林说：“我们知道哈登吸引了所有的注意力，所以这是我们的一个机会，在没有威少的时候也能给他减压，让所有人都参与进来。”
+
 5. I was thoroughly impressed with the production the team got in the non-Harden minutes. In the 14 minutes Harden sat, the Rockets posted an offensive rating of 114.8 and a defensive rating of 92.9 (!). A +22 in the playoffs, while your superstar sits, is stellar. Houston also didn’t get obliterated on the boards (losing 46-36) or in the 2nd-chance points (11-8), two areas we discussed in our series preview as areas the Thunder weren’t particularly strong in. Credit McLemore (95.7 D-Rtg), Green (97.0), and Rivers (92.1) for not allowing for a dropoff.
+
+5.球队再没有哈登时的表现给我留下了深刻印象。在哈登休息的14分钟里，火箭打出了114.8的进攻效率和92.9的防守效率（！）。在季后赛中当你的超巨休息的时候+22分令人赞叹。火箭也没有被爆板（36-46），二次进攻上（8-11），两个我们前瞻时认为雷霆会有强力表现的地方。归功于麦克勒莫（95.7的防守效率），格林（97.0）和里佛斯（92.1），没有让哈登提前回来。
 
 6. An interesting stat: With Harden on the floor, the Rockets played at a 98.2 pace. With him off the floor, it dropped even more (95.2). I’m sure during the film session, D’Antoni will call for an uptick in pace because it almost adds another layer of uncomfortability to the Thunder’s plate.
 
+6.一个有趣的统计：当哈登在场火箭的节奏是98.2。当他不在场甚至降到了95.2.我认为在录像分析上，德安东尼会要求提速，因为这会让雷霆进入他们不舒服的节奏。
+
 7. At some point, Robert Covington’s going to have to break out of this shooting slump, right? Houston got enough production elsewhere to get by, but you can’t count on that every game, especially in the playoffs. Elsewhere, I thought his defense was tremendous. I think he plays with four hands instead of two, there’s no reason why he should get that many deflections, tipped passes and almost-steals. 
 
+7.某种程度上说，考文顿得要摆脱现在的投射低迷，对吧？火箭在其他地方有足够产量，但是你不能这么指望每场比赛，尤其是季后赛。另外，我认为他的防守绝了。我认为他在用四只手打球而不是两只，不然没理由他会制造那么多干扰、碰到传球和几乎完成的抢断。
+
 8. “I don’t know if it played into their hands,” said D’Antoni on defensively imposing their presence. “They play the way they play like we [do]. But we were good tonight. It’s a long series, they’ll make their adjustments and we gotta be ready to play with the same intensity all the way through. But tonight was a good night and we’ll start from zero on Thursday night.”
+
+8.“我不知道是够和手上发挥有关”德安东尼谈到球队防守的升级：“他们打得就像我们一直打的样子。但我们今晚打得很好。这是一个很长的系列赛，对手会做出他们的调整，我们无论如果都需要准备好打出相同的强度。但是今晚是个美好的夜晚，我们周四晚上要从零开始。”
